@@ -4,7 +4,7 @@
 
 ## I Dont Support This,
 
-## Like he brags AIO is a rat but his tool is paid and who knows what "detecters" he 
+## Like he brags AIO is a rat but his tool is paid and who knows what "detecters" he has
 
 This Dude's AIO Downloads arent even available and who knows what trackers he has in his codes
 I Hope You Dont Get Tricked Into Paying for It Thinking Its better than Ethan's AIO  (People Will Lie And Say Its Undetected Ect),
