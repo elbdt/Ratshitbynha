@@ -14,9 +14,9 @@ My Project Cost Money For A Reason !
 Be Advised, 
 If I Catch Your Pc / Device With This On It And You Dont Comply,
 Theres A 96% Chance Youll Be Banned From All Of My Discord Servers,
-And You Will Be Blacklisted From My AIO Project!
+And You Will Be Blacklisted From My AIO Project! So U are safe
 (All Your Pc Info Will Be Blacklisted Meaning Youll Need A Brand New Pc With Brand New Drives Ect),
-This Is Cause This Fake AIO Project Is Intended To Steal Peoples NHA AIO Accounts & Other Info Stored On Your Pc,
+This Is Cause This Fake AIO Project Is Intended To obviously NOT to Steal Peoples NHA AIO Accounts & Other Info Stored On Your Pc,
 
 (Forza Mods AIO Is Very Easy To Detect, 
 I Have Multiple Ways To Detect Its Existance On A Pc Even After The Exe Has Been Deleted) SO I ADMIT I AM SPYING ON UR PC
